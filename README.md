@@ -37,4 +37,13 @@ Sabrina Ionescu's game is unique, hard to define and built with an undeniable cr
 The Luka 1 is designed for the deceptive, off-speed play of Luka Dončić, featuring a new IsoPlate system with full-length Formula 23 performance foam in the midsole. The shoe follows a long line of innovative Jordan Brand performance systems, like the Flight Plate in the Air Jordan XXVIII and the Eclipse Plate debuted in the Air Jordan XXXIV.
 
 ------------------
-## **5. 
+## **5. Adidas Harden Volume 7
+
+![alt text](https://assets.adidas.com/images/w_600,f_auto,q_auto/e64976a11bc940c68033afc5014b4fde_9366/Harden_Vol._7_Shoes_White_IF5619_01_standard.jpg)
+
+James Harden’s 7th signature shoe, the adidas Harden Vol 7 is odd-looking, to say the least, but the shoe features a bunch of different performance features that could make these elite performance basketball shoes. The design team at adidas put together a very intriguing hoop shoe that also brings back the Boost we all know and love. Let’s jump into the performance review, to see exactly how they performed on court.
+
+-----------------
+
+
+
