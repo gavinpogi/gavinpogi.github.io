@@ -22,14 +22,14 @@ Nike has unveiled the LeBron 21, the latest installment of the performance footw
 “As we took our next steps from the LeBron XX, we were inspired by the way LeBron maintains his body and his game during the offseason,” Jason Petrie, Lead Designer for the LeBron 21, said in a press release announcing the shoe launch. “His trainer says it's like taking care of an F1 car. You tweak the car between each race. You don’t need to rebuild the car completely. We wanted to retain some of the elements we know he loved, like the Zoom Turbo unit, but refine some of the finishes in the upper.”
 
 ------------------
-## **3. Nike Sabrina 1
+## **3. Nike Sabrina 1**
 
 ![alt text](https://titan22.com/cdn/shop/files/FQ3389-010-A_1082x.png?v=1693457113)
 
 Sabrina Ionescu's game is unique, hard to define and built with an undeniable craft. Her signature shoe helps you unlock your versatility with a snappy forefoot Zoom Air unit and cloud-like React foam to help keep you energised. We used insights from next-gen athletes of all genders around the world to bring grippy, best-in-class traction, reliable midfoot support and stability to the court—which every hooper needs. Built for crafty players like Sabrina, but made for anyone who's ready to put in the work to take their game to the next level. Hints of blue speak to the importance family represents in Sabrina's life and the vital roles they've played in helping her get to where she is today.
 
 ----------------------
-## **4. Jordan Luka 1
+## **4. Jordan Luka 1**
 
 ![alt text](https://pimpkicks.com.ph/cdn/shop/products/JordanLuka1NeoTurquoiseMen_s.jpg?v=1671011280)
 
@@ -37,7 +37,7 @@ Sabrina Ionescu's game is unique, hard to define and built with an undeniable cr
 The Luka 1 is designed for the deceptive, off-speed play of Luka Dončić, featuring a new IsoPlate system with full-length Formula 23 performance foam in the midsole. The shoe follows a long line of innovative Jordan Brand performance systems, like the Flight Plate in the Air Jordan XXVIII and the Eclipse Plate debuted in the Air Jordan XXXIV.
 
 ------------------
-## **5. Adidas Harden Volume 7
+## **5. Adidas Harden Volume 7**
 
 ![alt text](https://assets.adidas.com/images/w_600,f_auto,q_auto/e64976a11bc940c68033afc5014b4fde_9366/Harden_Vol._7_Shoes_White_IF5619_01_standard.jpg)
 
